@@ -1,4 +1,4 @@
 extraterra-temp
 ===============
 
-Photos of extraterrestrial signtings
+Photos of extraterrestrial sightings
